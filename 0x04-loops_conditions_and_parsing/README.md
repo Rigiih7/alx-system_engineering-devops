@@ -1,0 +1,1 @@
+Self proclaimed cryptographer/Bash
